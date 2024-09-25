@@ -1,4 +1,5 @@
-![AHS](![image](https://github.com/user-attachments/assets/875de06c-1117-450b-b572-2c38de2528b5)
+![AHS](https://github.com/user-attachments/assets/f263aa45-d945-4ac0-86d6-a29e0ba0c70f)
+)
 )
 )
 # American Horror Story: Season 3, Coven
