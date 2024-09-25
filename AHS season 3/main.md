@@ -1,4 +1,4 @@
-^ American Horror Story: Season 3, Coven
+*American Horror Story: Season 3, Coven
 
  **General Summary**
   
