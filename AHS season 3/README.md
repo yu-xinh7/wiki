@@ -1,4 +1,4 @@
-# AHS seasons 3 # 
+# AHS Season 3 # 
 
   **General Summary**
   
