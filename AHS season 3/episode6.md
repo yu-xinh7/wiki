@@ -28,3 +28,24 @@ Descendent. Furious, Marie demands Hank to bring her the heads of all the witche
 
 Misty detects bad vibes and leaves the Academy, while Madison slowly recovers from her death. The Axeman's spirit attacks Cordelia, and Zoe uses her power of Divination.
 This gives the Axeman enough substance to re-form and walk out of the Academy. He finds Fiona in a bar and offers to buy her a drink.
+
+#### Extra Notes
+
+>	*Season 3
+Episode 6*
+>
+> *Directed by	Michael Uppendahl*
+>
+> *Written by	Douglas Petrie*
+>
+> *Featured music	
+"Casta Diva" from Norma
+"Leather and Lace" by Stevie Nicks and Don Henley
+"New Orleans Lowdown" by Duke Ellington
+"Brand New" by Nyzzy Nyce*
+>
+> *Production code	3ATS06*
+>
+> *Original air date	November 13, 2013*
+>
+> *Running time	42 minutes*
