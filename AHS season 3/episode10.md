@@ -1,4 +1,5 @@
-![ahs](https://m.media-amazon.com/images/I/6125S-4ilvS._AC_SL1000_.jpg)
+![ahs](https://github.com/user-attachments/assets/b9028a20-5012-4864-9198-6d2d6a12557c)
+
 
 # Episode 10: The Magical Delights of Stevie Nicks
 
