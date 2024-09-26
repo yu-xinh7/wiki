@@ -1,7 +1,9 @@
-# Episode 7: The Dead 
+
 
 ![image](https://github.com/user-attachments/assets/30b3f87d-2e71-44a8-be7e-cb05979d4850)
 
+
+# Episode 7: The Dead 
 
 
 ### Introduction
