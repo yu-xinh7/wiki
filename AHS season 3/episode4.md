@@ -19,19 +19,19 @@ The Council of the Witchcraft arrives at the Academy to discuss the disappearanc
 Back at the Academy, Madame LaLaurie's resurrected daughters appear at the door. The dead surround the house and prepare for an attack as LaLaurie, Zoe, Queenie, Luke, and Nan cower inside.
 
 #### Extra Notes
->	Season 3
-Episode 4
+>	*Season 3
+Episode 4*
 >
-> Directed by	Michael Uppendahl
-Written by	Jennifer Salt
+> *Directed by	Michael Uppendahl
+Written by	Jennifer Salt*
 >
-> Featured music	
+> *Featured music	
 "Heaven" by Dorothy Love Coates & The Original Gospel Harmonettes
 "Commercial Joint" by Chaptabois
-"Sugarland" by Papa Mali
+"Sugarland" by Papa Mali*
 >
-> Production code	3ATS04
+> *Production code	3ATS04*
 >
-> Original air date	October 30, 2013
+> *Original air date	October 30, 2013*
 >
-> Running time	44 minutes
+> *Running time	44 minutes*
