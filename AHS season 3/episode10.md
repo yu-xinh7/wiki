@@ -29,7 +29,9 @@ Written by	James Wong*
 "Rhiannon" by Stevie Nicks
 "Has Anyone Ever Written Anything for You?" by Stevie Nicks*
 >
-> *Production code	3ATS10
-Original air date	January 8, 2014
-Running time	47 minutes*
+> *Production code	3ATS10*
+> 
+> *Original air date	January 8, 2014*
+>
+> *Running time	47 minutes*
 > 
