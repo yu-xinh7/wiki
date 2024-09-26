@@ -19,21 +19,21 @@ Still seeking to be perpetually young and beautiful, Fiona questions her new cap
 #### Extra Notes
 
 > 
-> Season 3
-Episode 2
+> *Season 3
+Episode 2*
 > 
->  Directed by	Michael Rymer.
-Written by	Tim Minear.
+>  *Directed by	Michael Rymer.
+Written by	Tim Minear.*
 >
-> Featured music:	
-"Edge of Seventeen" by Stevie Nicks
+> *Featured music:	
+"Edge of Seventeen" by Stevie Nicks*
 >
-> "Girls in Bossier City" by Papa Mali
+> *"Girls in Bossier City" by Papa Mali*
 >
-> "Devil's Hands" by Truth
+> *"Devil's Hands" by Truth*
 >
-> "Rhiannon" by Fleetwood Mac
+> *"Rhiannon" by Fleetwood Mac*
 >
-> Production code	3ATS02
+> *Production code	3ATS02
 Original air date	October 16, 2013
-Running time	43 minutes
+Running time	43 minutes*
