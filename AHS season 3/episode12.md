@@ -35,6 +35,8 @@ Written by	Tim Minear.*
 >
 > *"Rhiannon" by Fleetwood Mac*
 >
-> *Production code	3ATS02
-Original air date January 22, 2014
-Running time	43 minutes*
+> *Production code	3ATS02*
+> 
+> *Original air date January 22, 2014*
+>
+> *Running time	43 minutes*
