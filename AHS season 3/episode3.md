@@ -2,3 +2,5 @@
 
 
 # Episode 3 : seven wonders #
+
+*In the halls of Miss Robichaux's Academy, Stevie Nicks sings "Seven Wonders" while the individual candidates prepare in their own ways. They descend the staircase, each in a black dress and a shawl, and Stevie wishes them luck.*
