@@ -3,7 +3,7 @@
 ![image](https://github.com/user-attachments/assets/ee78d015-1e86-4eaf-970e-5ae7fe31c0aa)
 
 
-**Introduction**
+### Introduction
 
 *"The Replacements" is the third episode of the third season of the anthology television series American Horror Story, which premiered on October 23, 2013, on the cable network FX. This episode is rated TV-MA (LSV).*
 
@@ -11,7 +11,7 @@
 
 
 
-**Plot**
+### Plot
 
 *Madison and Nan take a liking to the new next door neighbor, Luke Ramsey, but have problems with his overly-religious mother Joan. After an encounter with the Ramseys, Madison develops the power of Pyrokinesis.*
 
@@ -22,3 +22,21 @@
 *Cordelia is told by her doctor that she can never have a baby and goes to Marie Laveau for help.*
 
 *As punishment for her crimes of torture and abuse of slaves in 1830, Delphine LaLaurie is forced by Fiona to be a maid to the students, causing tension between her and Queenie.*
+
+#### Extra Notes
+>	*Season 3
+Episode 4*
+>
+> *Directed by	Michael Uppendahl
+Written by	Jennifer Salt*
+>
+> *Featured music	
+"Heaven" by Dorothy Love Coates & The Original Gospel Harmonettes
+"Commercial Joint" by Chaptabois
+"Sugarland" by Papa Mali*
+>
+> *Production code	3ATS04*
+>
+> *Original air date	October 23, 2013*
+>
+> *Running time	44 minutes*
