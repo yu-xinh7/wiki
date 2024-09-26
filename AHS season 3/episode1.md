@@ -8,7 +8,7 @@
 
 *In season 3 episode 1 the episode introduces a group of four young witches who are given instructions on how to use their powers at a boarding school in New Orleans run by Cordelia Foxx (Sarah Paulson). Flashbacks tell the story of the cruel Delphine LaLaurie (Kathy Bates), a 19th-century New Orleans socialite who mutilated slaves as a part of her rituals for everlasting life. In the contemporary storyline, the world's most powerful witch and Foxx's mother Fiona Goode (Jessica Lange) excavates LaLaurie in order to learn her secrets. Angela Bassett and Gabourey Sidibe guest star as Marie Laveau and Queenie, respectively* 
 
-**plot**
+**Plot**
 
 *At the party Zoe meets frat boy Kyle Spencer, who immediately falls for her and is determined to get to know her. Meanwhile, Madison is drugged by Kyle's frat brother Archie Brener and, along with his other frat brothers, gang-rapes her. Afterwards, she vengefully flips their bus over, with Kyle and the frat brothers on board.*
 
