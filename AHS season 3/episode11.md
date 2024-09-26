@@ -21,3 +21,24 @@
 
 *The Axeman plays as Fiona dresses in his apartment. He suggests they go live at his family's farm after killing the new Supreme. She agrees but asks him to do her one small favor.*
 
+#### Extra Notes
+
+> 
+> *Season 3
+Episode 2*
+> 
+>  *Directed by	Michael Rymer.
+Written by	Tim Minear.*
+>
+> *Featured music:	
+"Edge of Seventeen" by Stevie Nicks*
+>
+> *"Girls in Bossier City" by Papa Mali*
+>
+> *"Devil's Hands" by Truth*
+>
+> *"Rhiannon" by Fleetwood Mac*
+>
+> *Production code	3ATS02
+Original air date 	January 15, 2014
+Running time	43 minutes*
