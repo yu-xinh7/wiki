@@ -19,7 +19,7 @@ Still seeking to be perpetually young and beautiful, Fiona questions her new cap
 #### Extra Notes
 
 > 
->  Episode no.	Season 3
+> Season 3
 Episode 2
 > 
 >  Directed by	Michael Rymer.
