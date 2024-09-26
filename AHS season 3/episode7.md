@@ -1,6 +1,7 @@
 # episode 7: The dead 
 
-![image](https://github.com/user-attachments/assets/4433c9d2-fb40-4b89-b6e9-e7ed4a164ea3) 
+![image](https://github.com/user-attachments/assets/30b3f87d-2e71-44a8-be7e-cb05979d4850)
+
 
 
 **Introduction**
