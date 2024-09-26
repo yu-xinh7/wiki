@@ -5,6 +5,8 @@
 
 
 **Introduction**
+
+
 *"The Dead" is the seventh episode of Coven. It premiered November 20, 2013.*
 
 *Fiona finds new purpose in a dangerous love affair. A night out with LaLaurie leads Queenie to question her place in the coven. Cordelia makes a fateful decision about her mother.*
