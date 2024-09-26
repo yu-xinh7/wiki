@@ -1,7 +1,6 @@
 # Episode 1: BitchCraft # 
 
-
-![bitchcraft](https://github.com/user-attachments/assets/c90ae93a-5e72-45ef-9f82-258405e24048)
+![image](https://github.com/user-attachments/assets/6b471346-18bc-45be-ab74-ecbe2152b701)
 
 
 ### Introduction
