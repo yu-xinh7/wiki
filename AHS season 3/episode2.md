@@ -2,11 +2,11 @@
 
 # Episode 2: Boy Parts
 
-**Introduction**
+#### Introduction
 
 The episode sheds light on how Delphine LaLaurie (Kathy Bates) managed to remain alive in the present day, it also reveals the fate of Marie Laveau (Angela Bassett). The character of Misty Day (Lily Rabe) is introduced a little more in-depth than from what was seen in the first episode. Angela Bassett and Gabourey Sidibe guest star as Marie Laveau and Queenie, respectively.
 
-**Plot** 
+#### Plot
 
 Detective Sanchez and Stiles interrupt to talk to Madison and Zoe about the deaths of the fraternity brothers. Zoe cracks and reveals to the detectives that they're all witches. Cordelia and Fiona cover for her.
 
@@ -16,7 +16,8 @@ At a gynecology appointment, Cordelia gets bad news that her fertility drugs are
 
 Still seeking to be perpetually young and beautiful, Fiona questions her new captive, Madame Delphine LaLaurie. Delphine tells Fiona that 180 years ago, a voodoo priestess named Marie Laveau gave her an immortality elixir, killed her family, and buried her alive. In hopes of becoming immortal as well, Fiona visits the still-living Laveau in a 9th Ward beauty salon and confides that she wants to know her secret to immortality. Marie mocks her and calls her muscle to toss Fiona out, so Fiona lights her racks of wigs on fire, promising she'll be back.
 
-> Extra
+> Extra Notes
+> 
 >  Episode no.	Season 3
 Episode 2
 Directed by	Michael Rymer
