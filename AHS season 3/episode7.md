@@ -18,6 +18,24 @@
 
 *Prior to the bus accident, Kyle is alive and standing in a tattoo parlor. He argues the merits of the band Toto while his frat brothers get tattoos. When they pressure him to get one as well, Kyle explains his future plans to be an engineer, inspired by the Hurricane Katrina levee failures, and that he does not want to ruin his reputation with a tattoo that could displease government officials. In present day, a chained Kyle examines his body and finds tattoos from his brethren, and realizing that his limbs are not his own. Zoe observes him, a gun hidden behind her back.*
 
+### Extra Notes
+
+> *Season 3
+Episode 10*
+>
+> *Directed by	Alfonso Gomez-Rejon
+Written by	James Wong*
+>
+> *Featured music	
+"Rhiannon" by Stevie Nicks
+"Has Anyone Ever Written Anything for You?" by Stevie Nicks*
+>
+> *Production code	3ATS10*
+> 
+> *Original air date	November 20, 2013*
+>
+> *Running time	47 minutes*
+> 
 
 
 
