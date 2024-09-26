@@ -1,4 +1,4 @@
-# episode 5 : Burn, witch, Burn!
+# Episode 5 : Burn, Witch, Burn!
 
 ![image](https://github.com/user-attachments/assets/837bad2f-8e6f-40c0-abd7-32b57e1e0aba) 
 
@@ -11,7 +11,7 @@
 *This episode focuses on Fiona (Jessica Lange) exacting revenge on Myrtle Snow (Frances Conroy) after Cordelia (Sarah Paulson) is blinded.*
 
 
-**plot**
+**Plot**
 
 *At the academy, the students fend off an attack by Madame LaLaurie's daughters, Marie Laveau, and their zombies.*
 
