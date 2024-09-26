@@ -17,3 +17,24 @@
 *Cordelia searches for the missing Misty Day, trying to evoke a vision to no avail, even upon touching Madison who, in an attempt to avoid her, develops the power of teleportation, one of the Seven Wonders. Cordelia eventually tracks Misty's whereabouts and together with Queenie, they rescue her.*
 
 
+#### Extra Notes
+
+> 
+> *Season 3
+Episode 2*
+> 
+>  *Directed by	Michael Rymer.
+Written by	Tim Minear.*
+>
+> *Featured music:	
+"Edge of Seventeen" by Stevie Nicks*
+>
+> *"Girls in Bossier City" by Papa Mali*
+>
+> *"Devil's Hands" by Truth*
+>
+> *"Rhiannon" by Fleetwood Mac*
+>
+> *Production code	3ATS02
+Original air date January 22, 2014
+Running time	43 minutes*
