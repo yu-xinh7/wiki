@@ -25,15 +25,20 @@ Episode 2
 Directed by	Michael Rymer.
 Written by	Tim Minear.
 
+>
 Featured music:	
 "Edge of Seventeen" by Stevie Nicks
 
+>
 "Girls in Bossier City" by Papa Mali
 
+>
 "Devil's Hands" by Truth
 
+>
 "Rhiannon" by Fleetwood Mac
 
+>
 Production code	3ATS02
 Original air date	October 16, 2013
 Running time	43 minutes
