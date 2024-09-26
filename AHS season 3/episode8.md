@@ -1,6 +1,9 @@
-# Episode 8 : The Scared Taking 
 
 ![image](https://github.com/user-attachments/assets/5ae4e563-977f-43d6-886d-e75e7f2aec34) 
+
+
+# Episode 8 : The Scared Taking 
+
 
 
 **Introduction**
