@@ -3,7 +3,7 @@
 ![image](https://github.com/user-attachments/assets/837bad2f-8e6f-40c0-abd7-32b57e1e0aba) 
 
 
-**Introduction**
+### Introduction
 
 
 *"Burn, Witch. Burn!" is the fifth episode of the third season of the anthology television series American Horror Story, which premiered on November 6, 2013, on the cable network FX.*
@@ -11,7 +11,7 @@
 *This episode focuses on Fiona (Jessica Lange) exacting revenge on Myrtle Snow (Frances Conroy) after Cordelia (Sarah Paulson) is blinded.*
 
 
-**Plot**
+### Plot
 
 *At the academy, the students fend off an attack by Madame LaLaurie's daughters, Marie Laveau, and their zombies.*
 
@@ -20,3 +20,24 @@
 *The Council returns and orders that Fiona abdicate her Supremacy. Fiona refuses and accuses Myrtle of the acid attack on Cordelia. Cecily and Quentin vote to "burn the witch". The Coven and the Council walk out to a quarry where Myrtle is roped to a stake and doused in gasoline. Fiona flicks her lit cigarette at Myrtle and her body goes up in flames, killing her. Back at the house, it is revealed Queenie dipped her hand in a glass of acid at a key moment during Fiona's interrogation, framing Myrtle. Fiona flatters Queenie, telling her she can help build her powers, maybe even to become the next Supreme.*
 
 *At the quarry, Misty Day finds Myrtle's charred corpse and uses her powers of resurgence to bring her back to life.*
+
+#### Extra Notes
+
+>	*Season 3
+Episode 6*
+>
+> *Directed by	Michael Uppendahl*
+>
+> *Written by	Douglas Petrie*
+>
+> *Featured music	
+"Casta Diva" from Norma
+"Leather and Lace" by Stevie Nicks and Don Henley
+"New Orleans Lowdown" by Duke Ellington
+"Brand New" by Nyzzy Nyce*
+>
+> *Production code	3ATS06*
+>
+> *Original air date	November 6, 2013*
+>
+> *Running time	42 minutes*
