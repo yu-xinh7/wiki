@@ -1,4 +1,4 @@
-# episode 3 : The Replacements
+# Episode 3 : The Replacements
 
 ![image](https://github.com/user-attachments/assets/ee78d015-1e86-4eaf-970e-5ae7fe31c0aa)
 
@@ -11,7 +11,7 @@
 
 
 
-**plot**
+**Plot**
 
 *Madison and Nan take a liking to the new next door neighbor, Luke Ramsey, but have problems with his overly-religious mother Joan. After an encounter with the Ramseys, Madison develops the power of Pyrokinesis.*
 
