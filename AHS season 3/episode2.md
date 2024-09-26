@@ -2,10 +2,12 @@
 
 # Episode 2: Boy Parts
 
-*Introduction
+*Introduction**
+
 The episode sheds light on how Delphine LaLaurie (Kathy Bates) managed to remain alive in the present day, it also reveals the fate of Marie Laveau (Angela Bassett). The character of Misty Day (Lily Rabe) is introduced a little more in-depth than from what was seen in the first episode. Angela Bassett and Gabourey Sidibe guest star as Marie Laveau and Queenie, respectively.
 
-*Plot 
+**Plot** 
+
 Detective Sanchez and Stiles interrupt to talk to Madison and Zoe about the deaths of the fraternity brothers. Zoe cracks and reveals to the detectives that they're all witches. Cordelia and Fiona cover for her.
 
 Zoe and Madison cast a resurrection spell in order to bring Kyle back to life. When Kyle reanimates as a scared, angry monster, Zoe must seek help from a reclusive Necromancer, Misty Day.
