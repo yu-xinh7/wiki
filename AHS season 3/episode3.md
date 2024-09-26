@@ -3,4 +3,6 @@
 
 # Episode 3 : seven wonders #
 
-*In the halls of Miss Robichaux's Academy, Stevie Nicks sings "Seven Wonders" while the individual candidates prepare in their own ways. They descend the staircase, each in a black dress and a shawl, and Stevie wishes them luck.*
+*In the halls of Miss Robichaux's Academy, Stevie Nicks sings "Seven Wonders" while the individual candidates prepare in their own ways. They descend the staircase, each in a black dress and a shawl, and Stevie wishes them luck.Myrtle Snow prepares a "last supper" for the candidates. Cordelia explains that it is unprecedented for four candidates to attempt the Seven Wonders without sponsorship by the outgoing Supreme.
+
+They begin with telekinesis. Kyle lights candles. Misty Day, Queenie, Madison, and Zoe move each candle in turn, with Misty displaying difficulty at first and Zoe barely taking a second to move the candle.*
