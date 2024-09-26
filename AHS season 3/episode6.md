@@ -29,6 +29,7 @@ Descendent. Furious, Marie demands Hank to bring her the heads of all the witche
 Misty detects bad vibes and leaves the Academy, while Madison slowly recovers from her death. The Axeman's spirit attacks Cordelia, and Zoe uses her power of Divination.
 This gives the Axeman enough substance to re-form and walk out of the Academy. He finds Fiona in a bar and offers to buy her a drink.
 
+
 #### Extra Notes
 
 >	*Season 3
