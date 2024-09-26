@@ -16,17 +16,24 @@ At a gynecology appointment, Cordelia gets bad news that her fertility drugs are
 
 Still seeking to be perpetually young and beautiful, Fiona questions her new captive, Madame Delphine LaLaurie. Delphine tells Fiona that 180 years ago, a voodoo priestess named Marie Laveau gave her an immortality elixir, killed her family, and buried her alive. In hopes of becoming immortal as well, Fiona visits the still-living Laveau in a 9th Ward beauty salon and confides that she wants to know her secret to immortality. Marie mocks her and calls her muscle to toss Fiona out, so Fiona lights her racks of wigs on fire, promising she'll be back.
 
-> Extra Notes
+#### Extra Notes
+
 > 
 >  Episode no.	Season 3
 Episode 2
-Directed by	Michael Rymer
-Written by	Tim Minear
-Featured music	
+> 
+Directed by	Michael Rymer.
+Written by	Tim Minear.
+
+Featured music:	
 "Edge of Seventeen" by Stevie Nicks
+
 "Girls in Bossier City" by Papa Mali
+
 "Devil's Hands" by Truth
+
 "Rhiannon" by Fleetwood Mac
+
 Production code	3ATS02
 Original air date	October 16, 2013
 Running time	43 minutes
