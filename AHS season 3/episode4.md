@@ -21,12 +21,17 @@ Back at the Academy, Madame LaLaurie's resurrected daughters appear at the door.
 #### Extra Notes
 >	Season 3
 Episode 4
+>
 > Directed by	Michael Uppendahl
 Written by	Jennifer Salt
+>
 > Featured music	
 "Heaven" by Dorothy Love Coates & The Original Gospel Harmonettes
 "Commercial Joint" by Chaptabois
 "Sugarland" by Papa Mali
+>
 > Production code	3ATS04
+>
 > Original air date	October 30, 2013
+>
 > Running time	44 minutes
