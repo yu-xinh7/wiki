@@ -1,5 +1,10 @@
+ npm install -g @gi60s/markdown-docs
+ markdown-docs init --serve </path/to/source-dir>
+ 
 ![AHS](https://github.com/user-attachments/assets/f263aa45-d945-4ac0-86d6-a29e0ba0c70f)
 # American Horror Story: Season 3, Coven
+
+
 
  ### General Summary
   
