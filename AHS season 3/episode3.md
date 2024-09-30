@@ -41,3 +41,5 @@ Written by	Jennifer Salt*
 > *Original air date	October 23, 2013*
 >
 > *Running time	44 minutes*
+
+[episode3](episode4.md)
