@@ -50,3 +50,5 @@ Episode 6*
 > *Original air date	November 13, 2013*
 >
 > *Running time	42 minutes*
+
+[episode6](episode7.md)
