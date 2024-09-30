@@ -37,3 +37,5 @@ Written by	Tim Minear.*
 > *Production code	3ATS02
 Original air date	October 16, 2013
 Running time	43 minutes*
+
+[episode2](episode3.md)
