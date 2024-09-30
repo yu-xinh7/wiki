@@ -40,3 +40,5 @@ Written by	Tim Minear.*
 > *Original air date January 22, 2014*
 >
 > *Running time	43 minutes*
+
+[episode12](epsiode13.md)
