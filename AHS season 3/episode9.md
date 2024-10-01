@@ -41,4 +41,4 @@ Written by	Tim Minear*
 >
 > *Running time	43 minutes*
 
-[episode9](episode10.md)
+[episode10](episode10.md)
