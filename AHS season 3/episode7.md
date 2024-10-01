@@ -39,6 +39,6 @@ Written by	James Wong*
 > *Running time	47 minutes*
 > 
 
-[episode8](episode8.md)
+[episode8](episode8.md)            [main page](main.md)
 
 
