@@ -45,4 +45,4 @@ Episode 6*
 >
 > *Running time	42 minutes*
 
-[epsiode5](episode6.md)
+[epsiode5](episode6.md)           [main page](main.md)
