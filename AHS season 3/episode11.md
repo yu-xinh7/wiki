@@ -45,4 +45,4 @@ Written by	Tim Minear.*
 > 
 > *Running time	43 minutes*
 
-[episode12](episode12.md)
+[episode12](episode12.md)         [main page](main.md)
