@@ -38,4 +38,4 @@ Written by	Tim Minear.*
 Original air date	October 16, 2013
 Running time	43 minutes*
 
-[episode3](episode3.md)
+[episode3](episode3.md)         [main page](main.md)
