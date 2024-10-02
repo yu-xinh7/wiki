@@ -11,3 +11,5 @@
 *Partner(s): Evan Peters (2012–2019); Garrett Hedlund (2019–2022); Cody John (2022–present)*
 *Height: 5′ 2″*
 *Siblings: Grace Nickels, Keaton Simons*
+
+[main page](main.md)
