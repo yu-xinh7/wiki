@@ -26,6 +26,8 @@
 3. Evan Peters: Evan Peters stars as Kyle Spencer. He is 19 year old, previous member of the Kappa Lambda Gamma fraternity at Tulane University who later serves as butler at Miss Robichaux's Academy. 
 4. Emma Roberts: Emma Roberts stars as Madison Montgomery. She is a former ward at Miss Robichaux's Academy for Exceptional Young Ladies. 
 5. Taissa Farmiga: Taissa Farmiga stars as Zoe Benson. She is a member of the Witches' Council and an instructor at Miss Robichaux's Academy. 
-6. Kathy Bates: Kathy Bates stars as Madame Delphine LaLaurie. She was a high-society Creole socialite in 1830s New Orleans. 
+6. Kathy Bates: Kathy Bates stars as Madame Delphine LaLaurie. She was a high-society Creole socialite in 1830s New Orleans.
+
+[kathy bates](kathy.md)
 
  
