@@ -21,7 +21,7 @@
 
 
 ### Main cast
-1. Jessica Lange: [jessica lange](jessica.md)  stars as Fiona Goode. She is the late mother of Cordelia Foxx and a former Supreme of the coven of the Salem descendants. 
+1. Jessica Lange: [jessica](jessica.md)  stars as Fiona Goode. She is the late mother of Cordelia Foxx and a former Supreme of the coven of the Salem descendants. 
 2. Sarah Paulson: [sarah paulson](sarah.md) stars as Cordelia Foxx. She is the Headmistress of Miss Robichaux's Academy for Exceptional Young Ladies, and current reigning Supreme of the Salem descendants. 
 3. Evan Peters: [Evan Peters](evan.md) stars as Kyle Spencer. He is 19 year old, previous member of the Kappa Lambda Gamma fraternity at Tulane University who later serves as butler at Miss Robichaux's Academy. 
 4. Emma Roberts: [Emma Roberts](emma.md) stars as Madison Montgomery. She is a former ward at Miss Robichaux's Academy for Exceptional Young Ladies. 
