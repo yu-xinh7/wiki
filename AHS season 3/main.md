@@ -28,6 +28,6 @@
 5. Taissa Farmiga: Taissa Farmiga stars as Zoe Benson. She is a member of the Witches' Council and an instructor at Miss Robichaux's Academy. 
 6. Kathy Bates: Kathy Bates stars as Madame Delphine LaLaurie. She was a high-society Creole socialite in 1830s New Orleans.
 
-[kathy bates](kathy.md)
+
 
  
