@@ -1,6 +1,6 @@
 **evan peter**
 
-https://www.google.com/url?sa=i&url=https%3A%2F%2Fvariety.com%2Ft%2Fevan-peters%2F&psig=AOvVaw0ptXDB8sxUvLNkzkpXq3O3&ust=1727993946945000&source=images&cd=vfe&opi=89978449&ved=0CBQQjRxqFwoTCNDIn53d8IgDFQAAAAAdAAAAABAE![image](https://github.com/user-attachments/assets/c11c993c-1667-49f3-b304-04dfd9266c72)
+![image](https://github.com/user-attachments/assets/c11c993c-1667-49f3-b304-04dfd9266c72)
 
 
 **About**
