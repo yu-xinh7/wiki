@@ -15,3 +15,5 @@
 *Spouse: Paco Grande (m. 1970–1982)*
 *Grandchildren: Adah Bryan, Ilse Bryan*
 *Parents: Dorothy Sahlman, Albert John Lange*
+
+[main page](main.md)
