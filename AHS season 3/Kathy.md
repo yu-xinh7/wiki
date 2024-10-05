@@ -11,3 +11,5 @@
 *Parents: Langdon Doyle Bates, Bertye Kathleen Bates*
 *Awards: Full list*
 *Education: Southern Methodist University (BFA)*
+
+[main page](main.md)
