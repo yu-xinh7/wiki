@@ -1,4 +1,4 @@
-**Kathy Bates**
+# Kathy Bates 
 
 ![image](https://github.com/user-attachments/assets/8f669b67-a5be-4678-bba1-965d12919392)
 
