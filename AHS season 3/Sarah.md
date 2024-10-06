@@ -1,4 +1,4 @@
-**sarah paulson**
+**Sarah Paulson**
 
 
 [
