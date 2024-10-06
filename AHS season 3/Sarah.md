@@ -7,11 +7,16 @@
 
 **About me**
 
-*Sarah Catharine Paulson is an American actress. She is the recipient of numerous accolades, including a Primetime Emmy Award, a Golden Globe Award, and a Tony Award.* *In 2017, Time magazine named her one of the 100 most influential people in the world. Wikipedia*
+*Sarah Catharine Paulson is an American actress. She is the recipient of numerous accolades, including a Primetime Emmy Award, a Golden Globe Award, and a Tony Award.* *In 2017, Time magazine named her one of the 100 most influential people in the world.*
+
 *Born: 1974 (age 49 years), Tampa, FL*
+
 *Partner: Holland Taylor (2015–)*
+
 *Height: 5′ 6″*
+
 *Parents: Douglas Lyle Paulson II, Catharine Paulson*
+
 *Siblings: Rachel Paulson, Liz Paulson*
 
 [main page](main.md)
