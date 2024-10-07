@@ -10,7 +10,6 @@
 
 | [episode1](episode1.md) |      | [episode2](episode2.md) |      |  [episode3](episode3.md)  |    
 |  [episode4](episode4.md)  |     | [episode5](episode5.md)  |    | [episode6](episode6.md) |      
-
 | [episode7](episode7.md) |      | [episode8](episode8.md) |     |[episode9](episode9.md) |          
 | [episode10](episode10.md) |         | [episode11](episode11.md) |         | [episode12](episode12.md) |           
 | [episode13](episode13.md) |
