@@ -7,7 +7,7 @@
  ### General Summary
   
   *The third season of the American Horror anthology television series American Horror Story, subtitle Coven, is set in 2013 New Orleans and follows a coven of witches descended from Salem as they fight for survival and features flashbacks to the Salem Witch trials in 1692, as well as the 1830s, 1910s, 1960s, etc*
-
+ 
 | [episode1](episode1.md) |      | [episode2](episode2.md) |      |  [episode3](episode3.md)  |    
 |  [episode4](episode4.md)  |     | [episode5](episode5.md)  |    | [episode6](episode6.md) |      
 | [episode7](episode7.md) |      | [episode8](episode8.md) |     |[episode9](episode9.md) |          
